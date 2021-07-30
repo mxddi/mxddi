@@ -1,0 +1,1 @@
+Hi! I'm Maddi. I'm interested in space and computer science, including artificial intelligence. I'm currently learning Android Studio and C++. Find me on LinkedIn at https://www.linkedin.com/in/maddi-g/
